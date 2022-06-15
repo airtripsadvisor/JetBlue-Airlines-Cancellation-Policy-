@@ -1,0 +1,2 @@
+# JetBlue-Airlines-Cancellation-Policy-
+JetBlue Airlines is one of the biggest low-cost airline companies around the world that provides top airline services in a reasonable cost. Since its beginning around 1998 JetBlue Airlines has served its customers across the globe with top-quality services in the air. The size of the fleet of JetBlue Airlines is 280 that allows it to operate over 104 international destinations. Find out more information regarding how to cancel your flight with JetBlue. JetBlue cancellation policy here.
